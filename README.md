@@ -1,7 +1,7 @@
 # OneBook
 
 Disclaimer for OneBook
-This book, titled “Onebook” is a work of Raymond Pu Yu Lei(雷菩宇） and is intended for informational/entertainment purposes only. The views and opinions expressed in this book are those of the author(s) and do not necessarily reflect the official policy or position of any specific organization, entity, or government.
+This book, titled “Onebook”（一本書） is a work of Raymond Pu Yu Lei(雷菩宇） and is intended for informational/entertainment purposes only. The views and opinions expressed in this book are those of the author(s) and do not necessarily reflect the official policy or position of any specific organization, entity, or government.
 
 Scientific Information: The scientific information provided in this book is based on [the author’s research/personal perspectives/existing scientific knowledge as of the date of publication]. It is not intended as a definitive or comprehensive representation of scientific understanding. Readers should be aware that scientific theories and knowledge may evolve over time.
 
