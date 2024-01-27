@@ -1,6 +1,6 @@
 # OneBook
 
-Life is a journey and full of surprises. Please enjoy the book. Probably will never finish. I will write this book in Chinese first because it is easier for me XD. I am writing this book because I am bored. AI tool will be used.
+Life is a journey and full of surprises. Please enjoy the book. Probably will never finish. I will write this book in Chinese first because it is easier for me XD. I am writing this book because I am bored. AI tool will be used. Chinese-English dual version might be out of sync.
 
 Disclaimer for OneBook
 This book, titled “Onebook”（一本書)" is a ficitonal work of Raymond Pu Yu Lei(雷菩宇） and is intended for informational/entertainment purposes only. The views and opinions expressed in this book are those of the author(s) and do not necessarily reflect the official policy or position of any specific organization, entity, or government.
