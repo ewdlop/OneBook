@@ -33,3 +33,5 @@ In the endless aeons of Aesongi, Zhang San, a software engineer, works tirelessl
 ![DALL·E 2024-01-06 16 35 23 - A figure representing a classical interpretation of Jesus, with long hair and a robe, stands holding a lightsaber  The lightsaber glows with a bright,](https://github.com/ewdlop/OneBook/assets/25368970/cdfeac38-034f-442f-82d6-16c33ab5e188)
 
 ![DALL·E 2024-01-21 08 45 12 - A Tarot card illustrating the concept beyond our solar system  The card features a cosmic theme with stars, galaxies, and nebulae in the background, s](https://github.com/ewdlop/OneBook/assets/25368970/47ccd91f-d651-47cd-aded-6638ed50a939)
+
+![DALL·E 2024-01-27 19 01 04 - A 3D representation of the Taiji symbol, commonly known as Yin Yang, designed in the style of a Mobius strip  The symbol should feature a continuous, ](https://github.com/ewdlop/OneBook/assets/25368970/bf15ddd8-ea8a-4123-a40a-e0d1fa9bc60c)
