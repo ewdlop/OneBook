@@ -5,7 +5,7 @@ Life is a journey and full of surprises. Please enjoy the book. Probably will ne
 Disclaimer for OneBook
 This book, titled “Onebook”（一本書)" is a ficitonal work of Raymond Pu Yu Lei(雷菩宇） and is intended for informational/entertainment purposes only. The views and opinions expressed in this book are those of the author(s) and do not necessarily reflect the official policy or position of any specific organization, entity, or government.
 
-Scientific Information: The scientific information provided in this book is based on [the author’s research/personal perspectives/existing scientific knowledge as of the date of publication]. It is not intended as a definitive or comprehensive representation of scientific understanding. Readers should be aware that scientific theories and knowledge may evolve over time.
+Scientific Information: The scientific information provided in this book is based on [the author’s research/personal perspectives/existing scientific knowledge as of the date of publication]. It is not intended as a definitive or comprehensive representation of scientific understanding. Readers should be aware that scientific theories and knowledge may evolve.
 
 Religious and Spiritual Beliefs: Discussions and references to religious and spiritual beliefs within this book are intended to explore diverse perspectives and are not an endorsement of any particular religious or spiritual practice. They are presented to stimulate thought and understanding and should be interpreted within the context of the narrative.
 
@@ -42,3 +42,9 @@ This disclaimer may be subject to updates or changes to reflect new research, ch
 免責聲明：
 
 本作品是基於《魔獸世界》（World of Warcraft）的粉絲創作。《魔獸世界》及其所有相關內容、商標和版權均屬於 Blizzard Entertainment, Inc. 所有。本作品中的引用、改編或衍生內容僅用於非商業性的創意表達和個人愛好之目的，並非出於商業利益或侵犯版權的意圖。本作品與 Blizzard Entertainment, Inc. 無任何官方聯繫或背書。
+
+![R](https://github.com/ewdlop/OneBook/assets/25368970/577800b4-87f2-4b0f-bdc6-9dac6ae8cf0a)
+
+![ZuI7jZ150542_832404 (1)](https://github.com/ewdlop/OneBook/assets/25368970/4bdcf629-a4be-4a66-a74f-1e7d97120213)
+
+
