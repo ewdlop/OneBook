@@ -37,3 +37,8 @@ Liability Limitation: The author(s) and publisher(s) shall not be liable for any
 
 This disclaimer may be subject to updates or changes to reflect new research, changes in the field of psychology, or other relevant information.
 
+如果您正在創作與《魔獸世界》（World of Warcraft，簡稱 WoW）相關的內容，並希望表明您不擁有該遊戲的原始內容權利，您可以在作品中加入一個聲明來說明這一點。這樣的聲明有助於避免侵犯版權和知識產權的問題。以下是一個例子：
+
+免責聲明：
+
+本作品是基於《魔獸世界》（World of Warcraft）的粉絲創作。《魔獸世界》及其所有相關內容、商標和版權均屬於 Blizzard Entertainment, Inc. 所有。本作品中的引用、改編或衍生內容僅用於非商業性的創意表達和個人愛好之目的，並非出於商業利益或侵犯版權的意圖。本作品與 Blizzard Entertainment, Inc. 無任何官方聯繫或背書。
