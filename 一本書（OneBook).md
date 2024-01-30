@@ -16,9 +16,15 @@
 
 同時，張三意識到他必須在有限的人類壽命內做出改變。他希望能與科學家合作，利用宇宙中無窮的負能量，開啟阿庫別瑞引擎 迅速提升至卡爾達肖夫指數3型文明的水平。他們共同努力，致力於實現時間旅行、長生不老、建造永動機和超級計算機。
 
-當然，宇宙中的黑暗勢力不會讓人類輕易獲勝，但人類將得到喵星人的幫助。
+當然，宇宙中的黑暗勢力不會讓人類輕易獲勝，但人類將得到喵星人的幫助。 
+
+張三是一位尋找解答千古謎題的角色，而阿花則有機會通過理解這個謎題來展現她的領導才能，達到世界級領導者的地位。這個情節可以發展成一個引人入勝的故事，其中包含了尋找隱藏知識、解開古老秘密，以及個人成長和變革的主題。
+
+...而至於李四..(四在中文是厄運妳懂嗎 希望他還有救)
 
 在眾人的共同努力下，他們發起了強大的願望，創造了一個心物合一、任意所欲的元宇宙。這或許是拯救正在因暗能量加速膨脹的宇宙的唯一希望，法末的時代，直至下一個更完美的物理宇宙重生之前。
+
+=====translation is behind"
 
 In the endless aeons of Aesongi, Zhang San, a software engineer, works tirelessly into the late hours, wandering alone in an infinite cycle of reincarnation. He feels deeply singled out by fate, experiencing the cycles of multiple universes. In his life, he once encountered a soulmate as bright as the sun, but they were forced to part due to the unyielding laws of the universe. Weary of loneliness and the relentless cycle, Zhang San resolves to use forbidden cosmic sorcery to probe the profound mysteries of destiny. Nightly, he delves into the Akashic records, seeking ways to break the chains of fate. His long wait and disappointments breed resentment. On a night of a full moon in Leo, he furiously curses the entire universe, denouncing the cosmic order for its unfairness. His curse disrupts the balance of the universe, unleashing dark forces long suppressed. Chaos engulfs the heavenly realm, the gates of heaven shatter, and the gates of hell swing wide open, releasing numerous demons and devils that ravage the world. Humanity faces plagues, floods, celestial fires, earthquakes, and solar storms as apocalyptic events unfold. In this catastrophe, countless benevolent spirits become holy beings, engaging in a tremendous battle with evil forces in the spiritual realm. Even Jesus Christ faces challenges, highlighting the heavens' absolute intolerance of evil. To reverse the fortunes, Zhang San decides to act before the next planetary alignment. He gathers all practitioners, using divination, tarot cards, and absorbing the essence of the sun and moon for protection. They also wield magic and religious artifacts to combat demons and devils. In a humorous twist, imagine using toy guns or playing video games to fight evil spirits, cursing at them to scare them away, and using spitting as a means to cleanse the soul. Meanwhile, Zhang San realizes he must make changes within the limited span of human life. He seeks to collaborate with scientists, harnessing the universe's infinite negative energy to rapidly advance to a Type III Kardashev civilization level. Together, they strive to achieve time travel, immortality, perpetual motion machines, and supercomputers. Through their combined efforts, they initiate a powerful wish, creating a unified mind-matter universe where anything is desired. This may be the only hope to save the universe, rapidly expanding due to dark energy, until the dawn of a new, more perfect physical universe.
 
