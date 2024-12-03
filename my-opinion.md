@@ -16,3 +16,7 @@ THINKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
 
 
 Hint: bible didnt say where jeuss went for really long time
+
+oh the oldest one want to be the king and killed the young one so he can be...
+
+Hamlet
