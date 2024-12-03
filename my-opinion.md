@@ -13,3 +13,6 @@ and you said "My people". (My people in a small world means what)
 Like imagine you grow up in Taiwan not knowing there is something in other of the sea
 
 THINKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKKK
+
+
+Hint: bible didnt say where jeuss went for really long time
